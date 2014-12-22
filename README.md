@@ -35,11 +35,383 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
+TO THE RIGHT HONOVRABLE AND RELIGIOVS LADY, KATHARINE COVNTESSE OF CHESTERFIELD:•AMUEL HILDERSAM pre
+1. The Contents of the whole Booke collected by the Author.
+Lect. 1.IN the expounding of the Psalmes, the Titles ought not to be omitted as superfluous, Page 1.Lect. 2.No man when he is fallen, is able of himselfe to rise up aga•ne, p. 13.Therfore 1 Embolden nLect. 3.The ministery of the Word, is the meanes which God hath sanctified, and by which he is wont Lect. 4.Most men 1 esteeme not of the Ministers of the Word, at least not for their workes sake, p. Lect. 5.The ministery of the Word is •or fruitfull and three causes of it, 1 Want of due inspection,Lect. 6.To heare the Word profitably, is a laborious and painefull thing, p. 34.In the hearing of thLect 7.4 Labour to heare with affection and delight, Ibid.5 Take every thing as spoken to thy selfe,Lect. 8.The ministery that God useth most to worke by, is that that is most particular in applicatioLect. 9.Therefore the Minister had need be one, 1 that knowes well the estate of his people, Ibid. 2Lect 10.In all our distresses, we must fly to God by prayer and seeke comfort that way, p. 59. for 1Lect. 11.Impediments that keepe us from this remooved, 1 Th'extreamity of my affliction, overwhelmesLect 12.3 I cannot pray, p. 66, 67. Every faithfull man hath the spirit of prayer, yea a man may praLect. 13.4 It is to no purpose, for me to pray, Ibid. Resolve this is but a tentation, and resist itLect. 14.3 God knowes our necessities well enough, and hath decreed what he will do for us, and is oLect. 15.When we have prayed long, and finde no audience, this must trouble us, p. 78.We should hearLect. 16.Pardon of sin is more to be desired, then deliverance from the greatest judgement, that canLect 17.Most men seeke after many things, more then the pardon of sin, count not sin the greatest evLect. 18.Seeke pardon of sinne above all things, Seeke it without delay and earnestly, Ibid. For 1 iLect. 19.The best of Gods servants, have no other ground of hope to finde favour with God, for the pLect. 20.The best man cannot rely on any goodnesse hee findeth in himselfe. For 1 hee knowes many blLect. 21.The true knowledge of Gods mercy▪ hath great force to move men to forgive wrongs and to livLect. 22.He that hath truly tasted, of Gods mercy to him in Christ, will be mercifull unto others, pLect. 23.Gods people are not onely peaceable, and harmelesse. but strive to be profitable, & to do gLect. 24.We must not content ourselves, to know God i• mercifull, but labour to know, that his mercyLect. 25.Five effects, that the true knowledge of Gods mercy, will work in our hearts, p. 129, 130.TLect. 26.The best soules, most subject to doubts▪ & feares, p. 134. Though the most hearers, have moLect. 27.4 The reasons they give against themselves why they have just cause to be so heavy and uncoLect. 28.4 He weaneth us from the world, & maketh us think of home. 5 Hee worketh us to an high & prLect. 29.Directions how to recover our selvés, and overcome this tentation, 1 find out the chiefe siLect. 30.Take the helpe of some faithfull Minister, or other friend, for recovering of thy comfort pLect. 31.He that truly repents, cannot hide nor cloake his sin, but will be ready to confesse it, p.Lect. 32.How far forth confession of sin in private, to a Minister, or other friend, is not necessarLect. 33.What manner of men, Ministers had need to be, p. 166, 167.Gods people bound to reverence ouLect. 34.David made publike confession of his sin, & profession of his repentance & why, p. 170They Lect. 35.Three great mischiefes of this, that scannalous sins abound so, where the Gospel is preacheLect. 36.5. If we neglect to do, what lies in us, to bring these foule sinners to open shame. This iLect. 37.The sinne of those that keepe men from publike penance, p, 187, 188.The sin of such as shunLect. 38.Confession of our sinnes to God is (of all kindes of confession) most necessary and usefullLect. 39.The meanes whereby we may be enabled to confesse our sins aright unto God are five. 1 Get kLect. 40.Five properties there be, of sincere confession of sin. 1 It must be particular, p. 198, •9Lect. 41.Davids sin, was ever in his sight.They that have truly repented, cannot forget, but are aptLect. 42.Therefore be afraid to sin in any kinde or degree, for 1 thy conscience will say thy secretLect. 43.Davids sin was not against the Lord only, but against himselfe, and other men sundry waies,Lect 44.For 1 Every sinne is a transgression of the law of God, & an offence against him, p. 220. 2 Lect. 45.4 Infinite in goodnesse and bounty towards
+
+us. This expressed six waies, in the things thaLect. 46.No sinne is small, or lightly to be accounted of. as appeares, 1 By the father, that begetsLect. 47.Take heed of giving liberty to our selves, to commit any sin, or making light account of itLect 48.The Lord must be justified, in whatsoever he hath spoken. How the Lord speaketh to his peoplLect 49.Davids meaning in these words. That thou mightest bee cleere, when thou judgest, p. 244.The Lect. 50.We have all need to seeke the grace of patience, for 1 Crosses daily to be▪ looked for, 2 wLect. 51.Motives unto patience, 1 Every childe of God must looke for a••liction, even for much affliLect. 52.Meanes. 1 Thinke often of the evill day, and prepare for it, p. 260. These thoughts would 1Lect. 53.5 Get before a lively faith, p. 266. the reasons of this, the necessity of faith in this reLect. 54.6 Get before hand a sound hope and assurance that when thou dyest, thou shalt goe to heavenLect. 55.The Text 1 Psal. 51.5. cleared against the Anabaptists by answering two questions, p. 275. Lect. 56.The sinne that is in infants, is derived to them from their parents. Though there bee threeLect. 57.Our originall sinne is that for which God may most justly abhorre us, and for which we shouLect. 58.Parents should use their utmost endeavour to breed grace in their children. For 1 No. way lLect. 59.Meanes to destroy corruption, & to breed grace in our children, are these. Wee must 1 MaintLect. 60.Secondly, we must instruct our children, 1 By teaching them the principles plainely, even wLect. 61Two rules to try all doctrines in religion. That Doctrine cannot bee of God, 1 that gives anLect. 62.The knowledge of our naturall corruption is of great force to humble us, p. 308. viz. 1 to Lect. 63.Every one should endeavour to be delivered, from the danger of his originall corruption espLect. 64.Meanes, we must use to mortifie corruption in our selves. 1 Observe the first stirrings of Lect. 65.The fourth meanes to mortify corruption is a diligent and conscionable use of the exercisesLect. 66.The seventh meanes: Hie to Christ by faith for strength against it. Till one have faith, heLect. 67.For the mortifying of sin, faith a most be exercised, we must put it forth, and make use ofLect. 68.The consideration of the vilenesse of our nature, should cause us to admire Gods goodnesse Lect. 69.The wonderfull power and goodnesse of God, is seene in our conversion, p. 342. 1 that he soLect. 70.Its an admirable worke of God, that any of us should be able to persevere for any time in tLect. 71.The faithfull apt to thinke, they have lost al grace because they have lost their first lovLect. 72.Admirable it is, that God should respect any service commeth from such as wee are, that havLect. 73.Carnall men have no just cause to stumble at this, that God is so apt to winke at, and passLect 74.The heart is the seate of truth, and when a thing may be said to be done or spoken in truth Lect 75.Necessary, we should diligently examine, whether our heart be upright: for 1 This is an hardLect. 76.He that hath any one saving grace in him is no hypocrite, but hath an upright heart, p. 376Lect. 77.The first property of a good worke, and of true goodnesse is this: it must be materially goLect 78.The love of God is the root of all true obedience and righteousnesse, p. 386.That may be welLect. 79.One may bee subject to slavish feares, & yet truly love the Lord, p. 392. The reasons thereLect. 80.All true love to God, all true piery and
+
+uprightnesse of heart proceeds from faith, for 1 Lect. 81.Rest not in the common favours of God, and fruits of his love, till thou have got assuranceLect. 82.Five meanes to be used to get assurance of Gods love to us in Christ, p. 406. 1 Be perswadeLect. 83.Fourthly, nourish in thy heart a feare to offend God, and a care to please him, in all thinLect. 84.True grace goeth through the whole man and worketh a totall change in him, pag. 414. Yet isLect. 85.He that hath truth of grace in him, makes conscience of the whole will of God, in one pointLect 86.The upright hearted man shewes his equall respect to al the cōmandements, 1 He desires to kLect. 87.True saving grace is durable & everlasting p. 428, A man may 1 Seeme to have saving grace (Lect. 88.He that would approue the uprightnesse of his heart, must not content himselfe to abstaine Lect. 89.The third and last signe of uprightnesse is, when a man can finde in himselfe, that (notwitLect. 90.Their folly and sinne is great, that refuse Gods service, and to be soundly religious out oLect. 91.1 Religion doth not abridge man, of lawfull liberties & delights, p. 448. 2 The taskes God Lect. 92.This doth greatly aggravate the sinne and damnation of wicked men, that they have no grace,Lect. 93.Gods Ministers are (of all workes of their ministery) most bound to comfort th'afflicted soLect. 94.Motives to perswade us, to labour to be upright in heart. Such God hath promised to be goodLect. 95.What's meant by knowing of wisdome, in the hidden part, p. 472.True and saving knowledge, iLect. 96.We are bound to desire & procure (so farre as in us lyeth (that all men may have the meanesLect. 97.All Gods people should seeke for knowledge, 1 not resting in any good thing, they seeme to Lect. 98.Saving knowledge may be knowne by the effects of it. 1 It humbleth them that have it, and pLect. 99.Motives to seeke knowledge, 1 The matters we are exhorted to get knowledge in, concerne allLect. 100.Meanes of sanctified and saving knowledge, 1 None can attaine it, that is not sensible of Lect. 101.The Conversion of a man is to bee ascribed wholly unto God, and the mighty working of his Lect. 102.That the meanes of grace become effectuall to the conversion of any, is to be ascribed oneLect. 103.No man is able to attaine to that knowledge of the truth, as is sufficient to salvation, bLect. 104.Every man by nature is dead in trespasses, and our conversion is the reviving or raising oLect. 105.The whole glory of mans salvation, is due unto the Lord alone, p. 521.The salvation of manLect. 106.They are in a fearefull estate, that live where they cannot enjoy, the ministery of the WoLect. 107.The regenerate elect childe of God, sinnes not so hainously as every unregenerate man may Lect. 108.The Sinnes of the regenerate are in sundry respects more hainous, then of any other man, aLect. 109.God doth in this life, snew his hatred more against the sinnes of his owne people, for 1 HLect. 110.The Lord afflicts his owne people, with notorious and publike judgements, of purpose that Lect. 111.1. Great is the sin and danger of such, as rejoyce to heare and speake of the falls of GodLect. 112.All men are apt to thinke them, notorious and heinous sinners above others, whom they see Lect. 113.2 We are bound to take to heart, and to worke our hearts to unfeigned griefe for the ChurcLect. 114.He that is in the state of grace, must bee afraid to sinne. The extent of this feare in thLect. 115.The least thing, that God hath appointed in his worship, may not be neglected: but is reveLect. 116.We must labour to understand every thing we do in the service of God; this God required evLect. 117.They that would serve God aright in any duty of his worship, must first seeke to get knowlLect. 118.No mercy is to be hoped for from God, but onely in and through Christ, p. 596.No mercy canLect. 119.Foure points to be observed in the passion of Christ, that doe notably set forth, how odioLect. 120.Every man should labour to know that Christ is h••, and that he is one of the number, thatLect 121.No man can receive comfort by the blood of Christ, till he hath it sprinckled upon his hearLect. 122.Necessary to examine well, that assurance wee seeme to have, that Christ is ours, for 1 MaLect. 123.The third signe of true assurance, is the effects and fruits it produceth in them that havLect. 124.Though true assurance of the pardon of our sinnes, bee the supernaturall worke of Gods SpiLect. 125.1 A constant care to please God in all things, and feare to offend him, is a singular meanLect. 126.3 If Gods people would call to minde the speciall experiments, they have had formerly of GLect. 127.The use of comfort that the former Doctrine serveth unto (though it may seeme in two respeLect. 128.All true beleevers are perfectly cleansed from all their sinnes, and are as pure and whiteLect. 129.The controversie betweene us and the Papists touching justification, not unfit to bee handLect. 130.Five things to bee granted touching inherent righteousnesse. 1 God justifies none but he sLect. 131.He that truly beleeveth he is justified by Christ, must needs take comfort in the knowledgLect. 132.We should all highly esteeme of Christ, and hunger and thirst after him, and his righteousLect. 133.None are fit to receive Christ, nor can thirst after him, but the poore and such as feele Lect. 134.There are sundry good things, to be found in many an hypocrite, and better things then in Lect. 135.Though 1 the bodily observation of the Sabbath, and such as may bee performed by th'outwarLect. 136.We have all cause to praise God for the good lawes have beene made to provide for the bettLect. 137.It is a good thing, and highly pleasing unto God, to love the sincerity of Gods worship, aLect 138.The state of every hypocrite is most wofull and dangerous, neither can he have any sound peLect. 139.He that lives in any one sinne, though hee forsaketh all the rest, and whose obedience
+
+isLect. 140.No man can be sanctified till he be justified, p. 730. The only sure way to get strength aLect. 141.When a man is once by faith assured of Gods love, then will he be renewed and become fruitLect. 142.Necessary we should have signes given us in the Word, whereby they to whom Christ merits bLect. 143.Wee must love the persons of all men, and expresse it in nine duties, p. 748—751.We may prLect. 144.He that hath the Spirit of Christ, will bee constant in the religion of Christ, p. 766. YeLect. 145.The Spirit of God wheresoever he dwell• will teach and effectually perswade the heart in tLect. 146.Th'exhortation to constancy in the truth is very needfull, and that even in these daies, pLect. 147.Though our perseverance in the truth, be to be ascribed to the Lord alone, yet he worketh Lect. 148.He that desires to hold fast his profession, must use the meanes, whereby hee may bee estaLect. 149.3 He must take heed of declining from or forsaking the least truth, his conscience hath beLect. 150.Every one that hath the Spirit of Christ will take to heart, the cause of God, and his holLect. 151.Three Reasons and grounds of the former doctrine, 1 He that hath the Spirit of Christ cannLect. 152.Its a great error to thinke that much preaching is not now necessary, for 1 though prayer 
+1. Severall places of Scripture opened and applyed in this Booke.
+
+1. Errata.
+
+    _ Places of Scripture misquoted are thus amended.
 
 #####Body#####
 
+1. LECTVRES ON PSAL. LI.
+
+    _ Lecture I. on the Title of Psalme Ll. Septemb. XXVIII. MDCXXV.
+
+    _ Lecture II. On the Title Psalme 51. October 5. 1625.
+
+    _ Lecture III. On the Title of Psal 51. Octob. 19. 162•.
+
+    _ Lecture IIII. On the Title of Psal. 51. Octob. 26. 1625.
+
+    _ Lecture V. On the Title of Psalme 51. November 2. 1625.
+
+    _ Lecture VI. On the Title of Psalme 51. Novemb. 23, 1625.
+
+    _ Lecture VII. On the Title of Psal. 51. November 30. 1625.
+
+    _ Lecture VIII. On the Title of Psalme 51. Decemb. 14. 1625.
+
+    _ Lecture IX. On the Title of Psalme 51. December 21. 1625.
+
+1. LECTVRES ON PSAL. LI. 1, 2.
+
+    _ Lecture X. on Psalme LI. 1, 2. December XXVII. MDCXXV.
+
+    _ Lecture XI. On Psalme 51.1, 2. Ianu.. 3.. 1625.
+
+    _ Lecture XII. On Psalme 51.1, 2. Ianuary 10. 1625.
+
+    _ Lecture XIII. On Psal. 51.1, 2. Ianuary 24. 1625.
+
+    _ Lecture XIIII. On Psalme 51.1, 2. Ianuary 3. 1625.
+
+    _ Lecture XV. On Psal. 51.1, 2. February 7. 1625.
+
+    _ Lecture XVI. On Psalme 51.1, 2. Febru 21. 1625.
+
+    _ Lecture XVII. On Psalme 51.1, 2. Febru. 28. 1625.
+
+    _ Lecture XVIII. On Psal. 51.1, 2. March 7. 1625.
+
+    _ Lecture XIX. On Psal. 51.1, 2. March 21. 1625.
+
+    _ Lecture XX. On Psalme 51.1, 2. March 28. 1626.
+
+    _ Lecture XXI. On Psalme 51.1, 2. Aprill 4. 1626.
+
+    _ Lecture XXII. on Psalme 51.1, 2. Aprill 18. 1626.
+
+    _ Lecture XXIII. On Psalme 51.1, 2. Aprill. 25. 1626.
+
+    _ Lecture XXIIII. on Psalme 51.1, 2. May 2. 1626.
+
+    _ Lecture XXV. On Psal. 51.1, 2. May 16. 1626.
+
+    _ Lecture XXVI. on Psalme 51.1, •. May 23. 1626.
+
+    _ Lecture XXVII. On Psalme 51.1, 2. May 30. 1626.
+
+    _ Lecture XXVIII. On Psal. 51.1, 2. Iune 13. 1626.
+
+    _ Lecture XXIX. On Psalme 51.1, 2. Iune. 20. 1626.
+
+    _ Lecture XXX. on Psalme 51.1, 2. Iune 27. 1626.
+
+1. LECTVRES ON PSAL. LI.3.
+
+    _ Lecture XXXI. on Psalme LI.3. Iuly XI. MDCXXVI.
+
+    _ Lecture XXXII. On Psamel 51.3. Iuly 18. 1626.
+
+    _ Lecture XXXIII. On Psalme 51.3. Iuly. 25. 1626.
+
+    _ Lecture XXXIIII. on Psalme 51.3. Sept. 5. 1626
+
+    _ Lecture XXXV. On Psalme 51.3. Octob. 3. 1626.
+
+    _ Lecture XXXVI. On Psalme 51.3. Octob 10. 1626.
+
+    _ Lecture XXXVII. on Psalme 51.3. Octob. 17. 1626.
+
+    _ Lecture XXXVIII. On Psalme 51.3. Octob. 31. 1626.
+
+    _ Lecture XXXIX. on Psalme 51.3. Novemb. 7. 1626.
+
+    _ Lecture XL. On Psalme 51.3. Novemb 14. 1626.
+
+    _ Lecture XLI. On Psalme 51.3. Novemb. 28. 1626.
+
+    _ Lecture XLII. On Psalme 51.3. Decemb. 5. 1626.
+
+1. LECTVRES ON PSAL. LI.4.
+
+    _ Lecture XLIII. on Psalme LI.4. Decemb. XII. MDCXXVI.
+
+    _ Lecture XLIIII. On Psalme 51.4. Decemb. 26. 1626.
+
+    _ Lecture XLV. On Psalme 51.4. Ianuary 9. 1626.
+
+    _ Lecture XLVI. on Psalme 51.4. Ianuary 23. 1626.
+
+    _ Lecture XLVII. On Psalme 51.4. Ianu. 30. 1626.
+
+    _ Lecture XLVIII. On Psalme 51.4. Febru. 6. 1626.
+
+    _ Lecture XLIX. On Psalme 51.4. Febru. 20. 1626.
+
+    _ Lecture L. On Psalme 51.4. Febru. 27. 1626.
+
+    _ Lecture LI. On Psalme 51.4▪ March 6. 1626.
+
+    _ Lecture LII. On Psal. 51.4. March 20. 1626.
+
+    _ Lecture LIII. On Psal. 51.4. April 3. 1627.
+
+    _ Lecture LIIII. On Psalme 51.4. Aprill. 17. 1627.
+
+1. LECTVRES ON PSAL. LI. 5.
+
+    _ Lecture LV. On Psalme LI. 5. April XXIIII. MDCXXVII.
+
+    _ Lecture LVI. On Psalme 51.5. May 1. 1627.
+
+    _ Lecture LVIII. On Psalme 51.5. May 22. 1627.
+
+    _ Lecture LIX. On Psalme 51.5. May 29. 1627.
+
+    _ Lecture LX. On Psalme 51.5. Iune 12. 1627.
+
+    _ Lecture LVII. On Psalme 51.5. May 15. 1627.
+
+    _ Lecture LXI. On Psalme 51.5. Iune 19. 1627.
+
+    _ Lecture LXII. on Psalme 51.5. Iune 26. 1627.
+
+    _ Lecture LXIII. On Psalme 51.5. Iuly 10. 1627.
+
+    _ Lecture LXIIII. On Psalme 51.5. Iuly 17. 1627.
+
+    _ Lecture LXV. on Psalme 51.5. Iuly 24. 1627.
+
+    _ Lecture LXVI. On Psalme 51.5. August 7. 1629.
+
+    _ Lecture LXVII. on Psalme 51.5. Aug. 14. 1627.
+
+    _ Lecture LXVIII. On Psalme 51.5. Septemb 11. 1627.
+
+    _ Lecture LXIX. On Psalme 51.5. Septemb 18. 1627.
+
+    _ Lecture LXXI. On Psalme 51.5. October 2. 1627.
+
+    _ Lecture LXXI. On Psalme 51.5. October 9. 1627.
+
+    _ Lecture LXXII. On Psalme 51.5. Octob. 16. 1627.
+
+    _ Lecture LXXIII. on Psalme 51.5. Octob. 30. 1627.
+
+1. LECTVRES ON PSAL. LI. 6.
+
+    _ Lecture LXXIV. On Psalme LI. 6. Novemb. 6. MDCXXVII.
+
+    _ Lecture LXXV. On Psalme 51.6. Novem. 13. 1627.
+
+    _ Lecture LXXVI. On Psalme 51.6. Novemb. 27. 1627.
+
+    _ Lecture LXXVII. On Psalme 51.6. Ianuary 8. 1627.
+
+    _ Lecture LXXVIII. On Psalme 51.6. Ianuary 22. 1627.
+
+    _ Lecture LXXIX. On Psalme 51.6. Ianuary 29. 1627.
+
+    _ Lecture LXXX. On Psalme 51.6. February 5. 1627.
+
+    _ Lecture LXXXI. On Psalme 51.6. Febru. 19. 1627.
+
+    _ Lecture LXXXII. On Psalme 51.6. February 26. 1627.
+
+    _ Lecture LXXXIII. on Psalme 51.6. March. 4. 1627.
+
+    _ Lecture LXXXIV. On Psalme 51.6. March 18. 1627.
+
+    _ Lecture LXXXV. On Psalme 51.6. March 25. 1628.
+
+    _ Lecture LXXXVI. On Psalme 51.6. April 1• 1628.
+
+    _ Lecture LXXXVII. on Psalme 51.6. April. 15. 1628.
+
+    _ Lecture LXXXVIII. On Psalme 51.6. April 29. 1628.
+
+    _ Lecture LXXXIX. On Psalme 51.6. May 13. 1628.
+
+    _ Lecture XC. On Psalme 51.6. May 27. 1628.
+
+    _ Lecture LXXXXI. On Psalme 51.6. Iune. 17. 1628.
+
+    _ Lecture XCII. On Psalme 51.6. Iune 24. 1628.
+
+    _ Lecture XCIII. On Psalme 51.6. Aug 5. 1628.
+
+    _ Lecture XCIIII. On Psalme 51.6. August 12. 1628.
+
+1. LECTVRES ON PSAL. LI.6.
+
+    _ Lecture XCV. On Psalme LI. 6. August XIX. MDCXXVIII.
+
+    _ Lecture XCVI. On Psalme 51.6. Septemb. 2. 1628.
+
+    _ Lecture XCVII. On Psalme 51.6. Septemb. 9. 1628.
+
+    _ Lecture XCVIII. On Psalme 51.6. Septemb. 16. 1628.
+
+    _ Lecture XCIX. On Psalme 51.6. October 7. 1628.
+
+    _ Lecture C. On Psalme 51.6. Octob. 14. 1628.
+
+    _ Lecture CI. On Psalme 51.6. October 28. 1628.
+
+    _ Lecture CII. On Psalme 51.6. November 4. 1628.
+
+    _ Lecture CIII. On Psalme 51.6. Nouemb. 11. 1618.
+
+    _ Lecture CIIII. On Psalme 51.6. Novemb. 25. 1628.
+
+    _ Lecture CV. On Psalme 51.6. December 9. 1628.
+
+    _ Lecture CVI. On Psalme 51.6. Decemb. 30. 1628.
+
+    _ Lecture CVII. On Psalme 51.6. Ianuary 6. 1628.
+
+    _ Lecture CVIII. On Psalme 51.6. Ianu. 20. 1628.
+
+    _ Lecture CIX. On Psalme 51.6. Ianu. 27. 1628.
+
+    _ Lecture CX. On Psalme 51.6. February 17. 1628.
+
+    _ Lecture CXI. On Psalme 51.6. February 24. 1628.
+
+    _ Lecture CXII. On Psalme 51.6. March 3. 1628.
+
+    _ Lecture CXIII. On Psalme 51.6. March 17. 1628.
+
+    _ Lecture CXIIII. On Psalme 51.6. Mar. 31. 1629.
+
+1. LECTVRES ON PSAL. LI. 7.
+
+    _ Lecture CXV. On Psalme LI. 7. Aprill XIIII. MDCXXIX.
+
+    _ Lecture CXVI. On Psalme 51.7. April 21. 1629.
+
+    _ Lecture CXVI. On Psalme 51.6. Aprill 28. 1628.
+
+    _ Lecture CXVIII. On Psalme 51.6. May 12. 1629.
+
+    _ Lecture CXIX. On Psalme 51.7. May 26. 1619.
+
+    _ Lecture CXX. On Psalme 51.7. Iune 9. 1629.
+
+    _ Lecture CXXI. On Psalme 51.7. Iune 23. 1629.
+
+    _ Lecture CXXII. On Psalme 51.7. Iuly 7. 1629.
+
+    _ Lecture CXXIII. On Psalme 51.7. Iuly 21. 1629.
+
+    _ Lecture CXXIIII. On Psalme 51.7. August 4. 1629.
+
+    _ Lecture CXXV. On Psalme 51.7. Aug. 11. 1629.
+
+    _ Lecture CXXVI. On Psalme 51.7. August 18. 1629.
+
+    _ Lecture CXXVII. On Psalme 51.7. Septem. 1. 1629.
+
+    _ Lecture CXXVIII. On Psalme 51.7. Septemb. 15. 1629.
+
+    _ Lecture CXXIX. On Psalme 51.7. Septem. 29. 1629.
+
+    _ Lecture CXXX. On Psalme 51.7. October 13. 1629.
+
+    _ Lecture CXXXI. On Psalme 51.7. Octob. 27. 1629.
+
+    _ Lecture CXXXII. On Psalme 51.7. Novemb. 10. 1629.
+
+    _ Lecture CXXXIII. On Psalme 51.7. Novemb. 24. 1629.
+
+    _ Lecture CXXXIV. On Psalme 51.7. Decemb. 8. 1629.
+
+    _ Lecture CXXXV. On Psalme 51.7. Decemb. 22. 1629.
+
+    _ Lecture CXXXVI. On Psalme 51.7. December 29. 1629.
+
+    _ Lecture CXXXVII. On Psalme 51.7. Ian. 5. 1629.
+
+    _ Lecture CXXXVIII. On Psalme 51.7. Ianuary 19. 1629.
+
+    _ Lecture CXXXIX. On Psalme 51.7. Febr. 2. 1629.
+
+    _ Lecture CXL. On Psalme 51.7. February 16. 1629.
+
+    _ Lecture CXLI. On Psalme 51.7. Febr. 23. 1629.
+
+    _ Lecture CXLII. On Psalme 51.7. March 2. 1629.
+
+    _ Lecture CXLIII. On Psalme 51.7. March 23. 1629.
+
+    _ Lecture CXLIV. On Psalme 51.7. August. 2. 1631.
+
+    _ Lecture CXLV. On Psalme 51.7. August 16. 1631.
+
+    _ Lecture CXLVI. On Psalme 51.7. Aug. 30. 1631.
+
+    _ Lecture CXLVII. On Psalme 51.7. Sept. 13. 1631.
+
+    _ Lecture CXLVIII. On Psalme 51.7. October 18. 1631.
+
+    _ Lecture CXLIX. On Psalme 51.7. Nouem. 1. 1631.
+
+    _ Lecture CL. On Psalme 51.7. Novemb. 15. 1631.
+
+    _ Lecture CLI. On Psalme 51.7. November 29. 1631.
+
+    _ Lecture CLII. On Psalme 51.7. Decemb. 27. 1631.
+
 #####Back#####
-Affections.THe necess•y of good affections.489Affliction.In all distresses,〈◊〉 to God by prayer, and seeke comfort that way.59In all afflictions wAlmsdeeds.Motives to them.116, 117, &c.How to be performed.Ibid.How faulty men are this way.119, &c.Anabaptists.Confutation of their errours touching infants.281Application.Hearers must apply the Word to themselves.39Ministers must apply the Word particularly tAssurance.Labour to get assurance that Christs blood was shed for us.617, 618Many deceive themselvesAttention.We must diligently attend to what we heare.36, 37Beneficence.Gods children are ready and carefull to do good, and to be usefull to others.121—125Birth.No cause to be proud of parentage or birth.28•Blessinge of God.The godly have beene often confirmed in assurance of Gods love, by the experience oCatechising.A speciall meanes to breed sound knowledge.789Censoriousnesse.Men are apt to thinke them greatest sinners, whom they see most afflicted.557The folCharity.The knowledge of Gods love in pardoning us, should provoke us to forgive those that have wroChildren.To honour and reverence their parents.284Parents should do their uttermost to breed grace iChrist.The riches of Gods grace appeares to his people in Christ in five regards.103, 104No mercy toChurch.We should be affected with the miseries of the Church, and bow.562, &c.Pray for the Church.56Church-Assemblies.Being come into them, we must set our selves as in the presence of God.35Their sinCivill-honesty.In it selfe a good thing, pleasing to God, and such as he useth to reward.692, 693TheComfort.Ministers must take care to comfort such as are afflicted in conscience, though the greatestCommon-wealth.A great sin to be all for ourselves, and to have no care of the common good.125We mustCommunion.Their sin that forbeare it, because they are out of Charity.113Because we come not to it rConference.We should conferre of what we heare specially in our owne families.40, 41Good in trouble Confession.He that truly repents, will willingly confesse and bewaile his sin.158He that can rightlyConscience.Thy conscience will one day bring thy secretest sinnes to thy mind.207And smite thee for Conversion.The power and goodnesse of God to us, in it is admirable.342, &c.God hath set a time for Covetousnesse.True saith will subdue it.733Curiosity.Take heed of affecting the knowledge of curious, intricate, and unprofitable points.785ThiDeath.ONe chiefe thing that should make the faithfull willing to die, is that then they shall sin noDelay.Presently set upon the practice of what you have learned out of the Word.43Seeke speedily the Desire.Vnfained desire to please God a signe of uprightnesse.438, 439, 463Five differences between tDoubting.All doubting is not a signe of infidelitie242Yet a dangerous signe not to bee able to belieEnemies.WE must love them, and expresse it in eight duties.752, 753Errours.Corruption in iudgement the most dangerous corruption.779, 780The faithfull may erre in mattExamination.Christians should daily examine their wayes.197, 198A meanes to get and increase assuranExample.Great force in example.298Experience.It is profitable to call to mind the signes of grace we had in former times.643And the spExercises of Religion.Every man is to spend some part of every day in them.320Conscionable use of thFaith.WIthout faith we cannot beare afflictions patiently, but having it, we may.266 267How to trie Falls of the godly.The truly regenerate may fall fearefully into odious sinnes.8Why the Lord suffersFamily.True converts will have a care to reforme their families.288, 630Such as have children and faFast.Humiliation necessary in every fast, and for what causes we should be humbled.311, 313Feeling.A man may be in the state of grace, and highly in Gods favour, though be feele is not, nor hFeare of God.That may be well done, that is done cut of feare of Gods judgements.387But it must be sFreedome of will.How dead we are by nature.305, 517, 518Wicked men have no true desire nor wi•l t• hGod.HIs omnipresence and omniscience.221, 222His holinesse.222His Maiesty.223His goodnesse and bountGods love.Wicked men are perswaded God loveth them, and hee doth indeed with a common love.398Faith Grace.We are bound to give God thanks for his restraining grace in others. 337. In our selves.339SavGospell.The preaching of the Gospell is the outward instrument whereby the Spirit workes sanctificatHearers.TO love and reverence Gods Ministers.22, 167What Ministry they should most prize.22, 23Yet mHeart.Grosse sinnes harden the heart.14, 15, 16Hardnesse of heart a •earefull judgement.16Meanes to Honour.Whom God accounts truly honourable.286Hope.A sound hope that when wee shall die wee shall goe to heaven, a speciall meanes of patience.270Humiliation.The knowledge of our naturall corruption is of great force to humble us.308We have causeHypocrisie.The best are apt to suspect themselves to be hypocrites.460Comfort for such.461Many thingIdlenesse.A Great sinne for any man to live idly and un-profitably.125Idolatry.It is a good thing and pleasing to God to hate Idolatry.712, 714IgnoranceIs a sinne that much provokes God.494It is a signe one is under Sathans power.496Such a oneInfants.Every Infant so soone as it is borne or conceived, is guilty of sin in the sight of God, andInfidelity.The hainousnesse of that sin.146, 147Notwithstanding Infidelity discerned and bewailed, aInfirmities.Foure notes to discerne a sin of infirmity from a reigning sin.709Ioy.The humble-hearted man hath great cause of Ioy.138Gods children have cause to be comfortable, anIudgements of God.The Lord sheweth his severity more in this life, against the sinnes of his owne peIustification.By Christ we are fully and perfectly delivered and freed from all our sinnes.315, 316AKnowledge.A Good signe to desire to know the whole will of God in all things that concerne us.423, 7Labour.WE cannot performe any spirituall service unto God without labour.34Love of God.The love of God is the root of all true obedience.386The true love of God, a certaine siMagistratesHAve great opportunity to honour God in their places.631Maliciousnesse.True faith will subdue it.733, 734Meanes.God is the giver of all meanes, and of the vertue in them to do us good.72Meditation.Meditate on that we heare.40Memory.We should be carefull to remember what we heare.39And to keepe Gods favours in remembrance.64Mercy of God.The onely ground the best can have for hope of pardon is Gods mercy.102, &c.Gods mercy Ministers.Why the faithfullest Ministers are so hated.46, 47What properties should be in the MinisteMinistry of the WordThe means which God hath sanctified, and by which he hath been wont to worke repModesty.The people of God dare not speake boldly nor immodestly of filthy actions.6Mortification.Seven meanes of it.317, &c.We may with confidence go to Christ for helpe against our sMusicke.Three things to be observed concerning the Musicke they had in the worship of God under the Neighbours.HOw we came to make our selves guilty of the sinnes of others.179, &c. 219We are bound toOath.GReat care to be had in taking an oath and keeping it.183The common sinne, in taking an oath soOfficersBound to present infamous and scandalous persons.182They sin that keep men from publike pennObedience.Be willing to yeeld passive obedience unto God.245, 249Conscionable care to please God a sOppression.Against such as are undoers of others.124Originall sinneIs derived from the parents, and why.282, 283For this sinne (above all others) God maPapists.THeir errours touching originall sinne.305, &c.Touching justification.662, &c.Parents.To be humbled for the corruption and sinne that appeares in their children.286Parents shouldPatience.We have need of it.250Seven notes of it.251, &c.Motives to it.253, &c.Meanes.260, &c.Perseverance.Study to persevere unto the end.12The marvellous mercy of God to bee acknowledged, in tPredestination.Gods decree of Predestination is most righteous.248, 249Prayer.Gods people in all distresse must seeke for comfort from God by prayer.59. &c.Extremity of afPractice.Presently set upon the practice of what wee have learned.43Making conscience to practise whPreaching of the Word.Is a meanes to bring men to Christ.19The godly man will rejoyce in the plentifPreparationTo the hearing of the Word, wherein it consists.30, &c.Presumption.Take heed we sin not, presuming that we shall repent before we die.15The vanity of thosePrivate duties.Secret confession of sinne, most necessary, convenient, and beneficiall.193, 195Psalmes.The titles of them not to be omitted as superfluous and impertinent.1Why committed to the chPunishment.The consideration of punishment may cause a faithfull man to mourne and grieve for sinne,Profanenesse.In some respects the open profane persons case is worse than the hypocrites.718Profession.Live so as men may be witnesses of thy goodnesse.418He that hath assurance that Christ isProsperity.He that hath not Christ, can have no comfort in his prosperity.686Great is their folly thRegenerate.THe sinnes the regenerate fall into, are in sundry respects greater than the sinnes of otReligion.That's the true Religion that gives the whole glory of mans salvation to the free grace andRepentance.A great comfort that thou hast repented.17The sin of such as keep men from publike pennanReproofe.The Minister must plainely and particularly reprove sin.44, &c. 707The reasons for the neceRighteousnesse.Five things to be granted touching inherent righteousnesse.667, 668Yet cannot a man bSabbath.THough the outward observation of the Sabbath be the least, yet God is highly pleased with iSacriledgeIs a great sinne.724Sadnesse.Christians should beware of sadnesse and feare.137Salvation.The whole glory of mans salvation is due to the Lord alone, and his free grace.521, 522ThoSanctification.Whom the Lord iustifies, he sanctifieth, though this be not so perfect as the former,Scandalous sinners.We should do our best indeavor to bring scandalous sinners to open shame and puniScripture.We must esteeme reverently of every part of Scripture, though we cannot at first reading oSecurity.Against secure sinners.209, 214Selfe-denyall.To renounce our selves, and with humbled soules to cast our selves upon the •ree mercyService of God.Their solly which re•use Gods service because it is an heavy bondage.444, &c.Reasons Sight of sinneHow far forth the discovering of sin to us is a blessing.340How far forth a judgement.Sincerity.The Lord desireth and highly esteems truth and sincerity of •eart, and •oure reaso•s for tSinne.One sin drawes on another.14Pardon of sin is more to be desired, than deliverance from any outSpeech.Filthy speech becommeth not Christians.6, 7Spirit of God.Five notes of the holy Spirit dwelling in us.150, 151The Spirit is the mark on ChristsStrictnesseMaketh not Christs yoke intolerable.235All precisenesse and strictnesse in small matters Trouble of mind.Diverse obiections of men in that case answered.139, &c.Take heed of seeking helpe iTruth.When a thing is said to bee done or spoken in truth.368Watchfulnesse.A Meanes to get assurance of Gods favour.641, &c.Wicked men.L•wd persons are a curse to the place they live in.124Have no cause to stumble at this, tWorks.Good works the fruits of Gods sanctifying Spirit in us, good grounds of hope and comfort.104, Word of God.The Lord must be justified in whatsoever he hath spoken.238We must believe it.239Allow aWorship of God.We must depend upon the direction of the Word for 〈◊〉.581Conscience to be made of theZeale▪EVery one that 〈◊〉 the Spirit of Christ, must needs be zealous for God and his worship.799
+
+1. An Alphabeticall Index of the principall matters contained in this Booke.
+
+    _ A.
+Affections.THe necess•y of good affections.489Affliction.In all distresses,〈◊〉 to God by prayer, and seeke comfort that way.59In all afflictions wAlmsdeeds.Motives to them.116, 117, &c.How to be performed.Ibid.How faulty men are this way.119, &c.Anabaptists.Confutation of their errours touching infants.281Application.Hearers must apply the Word to themselves.39Ministers must apply the Word particularly tAssurance.Labour to get assurance that Christs blood was shed for us.617, 618Many deceive themselvesAttention.We must diligently attend to what we heare.36, 37Beneficence.Gods children are ready and carefull to do good, and to be usefull to others.121—125Birth.No cause to be proud of parentage or birth.28•Blessinge of God.The godly have beene often confirmed in assurance of Gods love, by the experience oCatechising.A speciall meanes to breed sound knowledge.789Censoriousnesse.Men are apt to thinke them greatest sinners, whom they see most afflicted.557The folCharity.The knowledge of Gods love in pardoning us, should provoke us to forgive those that have wroChildren.To honour and reverence their parents.284Parents should do their uttermost to breed grace iChrist.The riches of Gods grace appeares to his people in Christ in five regards.103, 104No mercy toChurch.We should be affected with the miseries of the Church, and bow.562, &c.Pray for the Church.56Church-Assemblies.Being come into them, we must set our selves as in the presence of God.35Their sinCivill-honesty.In it selfe a good thing, pleasing to God, and such as he useth to reward.692, 693TheComfort.Ministers must take care to comfort such as are afflicted in conscience, though the greatestCommon-wealth.A great sin to be all for ourselves, and to have no care of the common good.125We mustCommunion.Their sin that forbeare it, because they are out of Charity.113Because we come not to it rConference.We should conferre of what we heare specially in our owne families.40, 41Good in trouble Confession.He that truly repents, will willingly confesse and bewaile his sin.158He that can rightlyConscience.Thy conscience will one day bring thy secretest sinnes to thy mind.207And smite thee for Conversion.The power and goodnesse of God to us, in it is admirable.342, &c.God hath set a time for Covetousnesse.True saith will subdue it.733Curiosity.Take heed of affecting the knowledge of curious, intricate, and unprofitable points.785Thi
+    _ D.
+Death.ONe chiefe thing that should make the faithfull willing to die, is that then they shall sin noDelay.Presently set upon the practice of what you have learned out of the Word.43Seeke speedily the Desire.Vnfained desire to please God a signe of uprightnesse.438, 439, 463Five differences between tDoubting.All doubting is not a signe of infidelitie242Yet a dangerous signe not to bee able to belie
+    _ E.
+Enemies.WE must love them, and expresse it in eight duties.752, 753Errours.Corruption in iudgement the most dangerous corruption.779, 780The faithfull may erre in mattExamination.Christians should daily examine their wayes.197, 198A meanes to get and increase assuranExample.Great force in example.298Experience.It is profitable to call to mind the signes of grace we had in former times.643And the spExercises of Religion.Every man is to spend some part of every day in them.320Conscionable use of th
+    _ F.
+Faith.WIthout faith we cannot beare afflictions patiently, but having it, we may.266 267How to trie Falls of the godly.The truly regenerate may fall fearefully into odious sinnes.8Why the Lord suffersFamily.True converts will have a care to reforme their families.288, 630Such as have children and faFast.Humiliation necessary in every fast, and for what causes we should be humbled.311, 313Feeling.A man may be in the state of grace, and highly in Gods favour, though be feele is not, nor hFeare of God.That may be well done, that is done cut of feare of Gods judgements.387But it must be sFreedome of will.How dead we are by nature.305, 517, 518Wicked men have no true desire nor wi•l t• h
+    _ G.
+God.HIs omnipresence and omniscience.221, 222His holinesse.222His Maiesty.223His goodnesse and bountGods love.Wicked men are perswaded God loveth them, and hee doth indeed with a common love.398Faith Grace.We are bound to give God thanks for his restraining grace in others. 337. In our selves.339SavGospell.The preaching of the Gospell is the outward instrument whereby the Spirit workes sanctificat
+    _ H.
+Hearers.TO love and reverence Gods Ministers.22, 167What Ministry they should most prize.22, 23Yet mHeart.Grosse sinnes harden the heart.14, 15, 16Hardnesse of heart a •earefull judgement.16Meanes to Honour.Whom God accounts truly honourable.286Hope.A sound hope that when wee shall die wee shall goe to heaven, a speciall meanes of patience.270Humiliation.The knowledge of our naturall corruption is of great force to humble us.308We have causeHypocrisie.The best are apt to suspect themselves to be hypocrites.460Comfort for such.461Many thing
+    _ I.
+Idlenesse.A Great sinne for any man to live idly and un-profitably.125Idolatry.It is a good thing and pleasing to God to hate Idolatry.712, 714IgnoranceIs a sinne that much provokes God.494It is a signe one is under Sathans power.496Such a oneInfants.Every Infant so soone as it is borne or conceived, is guilty of sin in the sight of God, andInfidelity.The hainousnesse of that sin.146, 147Notwithstanding Infidelity discerned and bewailed, aInfirmities.Foure notes to discerne a sin of infirmity from a reigning sin.709Ioy.The humble-hearted man hath great cause of Ioy.138Gods children have cause to be comfortable, anIudgements of God.The Lord sheweth his severity more in this life, against the sinnes of his owne peIustification.By Christ we are fully and perfectly delivered and freed from all our sinnes.315, 316A
+    _ K.
+Knowledge.A Good signe to desire to know the whole will of God in all things that concerne us.423, 7
+    _ L.
+Labour.WE cannot performe any spirituall service unto God without labour.34Love of God.The love of God is the root of all true obedience.386The true love of God, a certaine si
+    _ M.
+MagistratesHAve great opportunity to honour God in their places.631Maliciousnesse.True faith will subdue it.733, 734Meanes.God is the giver of all meanes, and of the vertue in them to do us good.72Meditation.Meditate on that we heare.40Memory.We should be carefull to remember what we heare.39And to keepe Gods favours in remembrance.64Mercy of God.The onely ground the best can have for hope of pardon is Gods mercy.102, &c.Gods mercy Ministers.Why the faithfullest Ministers are so hated.46, 47What properties should be in the MinisteMinistry of the WordThe means which God hath sanctified, and by which he hath been wont to worke repModesty.The people of God dare not speake boldly nor immodestly of filthy actions.6Mortification.Seven meanes of it.317, &c.We may with confidence go to Christ for helpe against our sMusicke.Three things to be observed concerning the Musicke they had in the worship of God under the 
+    _ N.
+Neighbours.HOw we came to make our selves guilty of the sinnes of others.179, &c. 219We are bound to
+    _ O.
+Oath.GReat care to be had in taking an oath and keeping it.183The common sinne, in taking an oath soOfficersBound to present infamous and scandalous persons.182They sin that keep men from publike pennObedience.Be willing to yeeld passive obedience unto God.245, 249Conscionable care to please God a sOppression.Against such as are undoers of others.124Originall sinneIs derived from the parents, and why.282, 283For this sinne (above all others) God ma
+    _ P.
+Papists.THeir errours touching originall sinne.305, &c.Touching justification.662, &c.Parents.To be humbled for the corruption and sinne that appeares in their children.286Parents shouldPatience.We have need of it.250Seven notes of it.251, &c.Motives to it.253, &c.Meanes.260, &c.Perseverance.Study to persevere unto the end.12The marvellous mercy of God to bee acknowledged, in tPredestination.Gods decree of Predestination is most righteous.248, 249Prayer.Gods people in all distresse must seeke for comfort from God by prayer.59. &c.Extremity of afPractice.Presently set upon the practice of what wee have learned.43Making conscience to practise whPreaching of the Word.Is a meanes to bring men to Christ.19The godly man will rejoyce in the plentifPreparationTo the hearing of the Word, wherein it consists.30, &c.Presumption.Take heed we sin not, presuming that we shall repent before we die.15The vanity of thosePrivate duties.Secret confession of sinne, most necessary, convenient, and beneficiall.193, 195Psalmes.The titles of them not to be omitted as superfluous and impertinent.1Why committed to the chPunishment.The consideration of punishment may cause a faithfull man to mourne and grieve for sinne,Profanenesse.In some respects the open profane persons case is worse than the hypocrites.718Profession.Live so as men may be witnesses of thy goodnesse.418He that hath assurance that Christ isProsperity.He that hath not Christ, can have no comfort in his prosperity.686Great is their folly th
+    _ R.
+Regenerate.THe sinnes the regenerate fall into, are in sundry respects greater than the sinnes of otReligion.That's the true Religion that gives the whole glory of mans salvation to the free grace andRepentance.A great comfort that thou hast repented.17The sin of such as keep men from publike pennanReproofe.The Minister must plainely and particularly reprove sin.44, &c. 707The reasons for the neceRighteousnesse.Five things to be granted touching inherent righteousnesse.667, 668Yet cannot a man b
+    _ S.
+Sabbath.THough the outward observation of the Sabbath be the least, yet God is highly pleased with iSacriledgeIs a great sinne.724Sadnesse.Christians should beware of sadnesse and feare.137Salvation.The whole glory of mans salvation is due to the Lord alone, and his free grace.521, 522ThoSanctification.Whom the Lord iustifies, he sanctifieth, though this be not so perfect as the former,Scandalous sinners.We should do our best indeavor to bring scandalous sinners to open shame and puniScripture.We must esteeme reverently of every part of Scripture, though we cannot at first reading oSecurity.Against secure sinners.209, 214Selfe-denyall.To renounce our selves, and with humbled soules to cast our selves upon the •ree mercyService of God.Their solly which re•use Gods service because it is an heavy bondage.444, &c.Reasons Sight of sinneHow far forth the discovering of sin to us is a blessing.340How far forth a judgement.Sincerity.The Lord desireth and highly esteems truth and sincerity of •eart, and •oure reaso•s for tSinne.One sin drawes on another.14Pardon of sin is more to be desired, than deliverance from any outSpeech.Filthy speech becommeth not Christians.6, 7Spirit of God.Five notes of the holy Spirit dwelling in us.150, 151The Spirit is the mark on ChristsStrictnesseMaketh not Christs yoke intolerable.235All precisenesse and strictnesse in small matters 
+    _ T.
+Trouble of mind.Diverse obiections of men in that case answered.139, &c.Take heed of seeking helpe iTruth.When a thing is said to bee done or spoken in truth.368
+    _ W.
+Watchfulnesse.A Meanes to get assurance of Gods favour.641, &c.Wicked men.L•wd persons are a curse to the place they live in.124Have no cause to stumble at this, tWorks.Good works the fruits of Gods sanctifying Spirit in us, good grounds of hope and comfort.104, Word of God.The Lord must be justified in whatsoever he hath spoken.238We must believe it.239Allow aWorship of God.We must depend upon the direction of the Word for 〈◊〉.581Conscience to be made of the
+    _ Z.
+Zeale▪EVery one that 〈◊〉 the Spirit of Christ, must needs be zealous for God and his worship.799
 **Types of content**
 
   * Oh, Mr. Jourdain, there is **prose** in there!
